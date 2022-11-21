@@ -11,3 +11,8 @@
 
 **My favorite basketball player is Lebron James**
 **Lebron James  born December 30, 1984) is an American professional basketball player for the Los Angeles Lakers of the National Basketball Association (NBA). Nicknamed "King James", he is widely considered one of the greatest players ever and is often compared to Michael Jordan in debates over the greatest basketball player of all time. James has won four NBA championships, four NBA MVP awards, four NBA Finals MVP awards, three All-Star MVP awards, and two Olympic gold medals. James has scored the most points in the playoffs, the most career points (playoffs and regular seasons combined), and the second most regular seasons points, and has the seventh most career assists. He has been selected an NBA All-Star 18 times, to the All-NBA Team a record 18 times, and to the NBA All-Defensive First Team five times. He has competed in ten NBA Finals, the third most all time, including eight consecutively between 2011 and 2018. In 2021, James was selected to the NBA 75th Anniversary Team, and in 2022 became the first and only player in NBA history to accumulate over 10,000 career points, rebounds, and assists.** 
+
+![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTW_VSbSEGwm4QgdlLye_OFRbWfJkO93rkoDQ&usqp=CAU)
+
+[FACEBOOK]/https://www.facebook.com/carljustin.verceluz.31)
+[INTAGRAM://https://www.instagram.com/cjkingofall/)
